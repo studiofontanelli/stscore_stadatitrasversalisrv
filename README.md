@@ -1,0 +1,1 @@
+# stscore_stadatitrasversalisrv
